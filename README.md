@@ -5,7 +5,7 @@
 </p>
 
 <p align="center">
-  Para ter uma mente saudável, é essencial cuidar primeiro do corpo, apaixonado pela musculação 💪.
+  
 </p>
 
 
